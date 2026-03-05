@@ -1,1 +1,1 @@
-Analisis dels ector
+Analisis del sector
